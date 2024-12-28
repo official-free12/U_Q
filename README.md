@@ -1,0 +1,6 @@
+# 2024USDT理财双端APP项目充电宝影视基金外汇金融货币投资USDT多语言机TRX/BSC/矿/
+
+具体看演示站。一切以演示站为主<br>购买前需要了解的一些事<br>1、源码属于虚拟产品，购买前，请认真测试演示站，本店保证发货源码与测试完全一致，若非此项，本店谢绝退款！<br>请勿用于违法经营，我司不参与运营，如有违法运营自行承担！<br>付款、购买代表同意以上条款。<br>我方如果发现买家使用此程序用于违法应用，将提停止一切服务并且举报<br>且行且珍惜，请勿适用于违法<br>后端PHP 前端UNIAPP，有H5和双端APP 接二开。可以二开任意分币系统。或者理财分发<br>可以上两个种类，带模式，带会员邀请，带级差。带行情，带，带提币，多币种带换算。，<br>大体功能如下图，具体不过多介绍，这是其中的一套给客户做过很多系统，，有任何需求可以详谈，（以缴纳10200消保）<br>演示站<br>理财演示H5+双端APP。<br>先下载APP看效果。非常NS。给老板定制的。无任何BUG 本店接二次开发。价格实惠 效率快 也接定制<br>APP下载地址<br>example.com/?promo_code=ag21DkvlJo<br>前端H5页面<br>example.com/<br>账号13700000001 密码 123123 支付密码123123<br>前端注册邀请下载页可自行注册。<br>example.com/?promo_code=ag21DkvlJo<br>example.com/backend<br>账号密码联系客服获取<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/yepKV" style="color: red;">https://mega-file.org/yepKV</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
